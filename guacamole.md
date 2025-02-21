@@ -8,4 +8,4 @@
 * salt
 * pepper
 ## Steps
-
+*Peel the avocados and CAREFULLY remove the pit
